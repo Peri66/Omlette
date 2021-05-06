@@ -1,0 +1,1 @@
+In this recipe you will create an omlette.It is a very simple process and willl only take about ten minutes.You can also customise your omlette depending on your taste however this recipe will be for a plain onion omlette.
